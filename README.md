@@ -1,0 +1,1 @@
+![Quotes](Quotes.JPG)
